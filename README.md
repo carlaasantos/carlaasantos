@@ -1,6 +1,6 @@
 ### Olá! Eu Sou a Carla Santos, em transição de carreira.
 <br>
-📈 Sou engenheira mecanica á 9 anos <br>
+📈 Sou engenheira mecanica a 9 anos <br>
 🌱 Engenheira de seguança do trabalho <br>
 🌱 Especialista em Lean Manufactiuring <br>
 
