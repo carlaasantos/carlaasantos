@@ -4,7 +4,7 @@
 🌱 Engenheira de seguança do trabalho <br>
 🌱 Especialista em Lean Manufactiuring <br>
 
-✅ Momento trabsição de carreira para programar  <br>
+✅ Momento transição de carreira para programar  <br>
 
 ❤️ Amo tecnologias e amo jogar <br>
 
